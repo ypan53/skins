@@ -1,3 +1,6 @@
+# [ypan](https://osu.ppy.sh/users/7787629) and [maliszewski](https://osu.ppy.sh/users/12408961) skins
+
+
 # [azerino nowe](https://mega.nz/file/y3onAbwJ#i9lrxjCbbLoDW66zsO8W-EhSRcSs76R0b9YgNzMb27w)
 ![image](https://user-images.githubusercontent.com/37017946/180619676-36c31750-dd63-41eb-8ed9-9ad2545ebfb4.png)
 
