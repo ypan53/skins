@@ -17,6 +17,10 @@
 ![image](https://user-images.githubusercontent.com/37017946/180619372-787f2500-8eee-4eb6-b5bd-268807f2571e.png)
 
 
+# [whypan-azerino2](https://mega.nz/file/3z413YDL#3QLKXLZ6NJ_IblU7xTOJWTe0hw76uRUs2R5EyupNL0c)
+![screenshot187](https://user-images.githubusercontent.com/37017946/181819469-a52c726a-28ff-40b7-bf4c-4dfb5cba0ccd.png)
+
+
 # [bartek22830edit](https://mega.nz/file/3vAigALL#qEua97zZFvuIjoj_eyL4SU0xOrr2loh7dHaMUC9bsrw)
 ![screenshot143](https://user-images.githubusercontent.com/37017946/180619976-f9a8c1fb-d18e-4a8e-92f4-e30a6564c99d.png)
 
