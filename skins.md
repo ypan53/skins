@@ -64,3 +64,7 @@
 # [purplepan](https://mega.nz/file/PzpySSYY#9mKv1ZIsFbsV8u_fwN0VHvLhUfcdeO4nAoAJd15OIdY)
 ![screenshot951](https://user-images.githubusercontent.com/37017946/186525066-47d23aa0-3a20-4950-b1f1-5d6cac757788.png)
 
+
+# [aristiatekkito](https://mega.nz/file/Cq5FEK7A#8-GUO9q9UDmgaPh4maFex1C3AEonL0AKBFrBPnPf0T0)
+![screenshot205](https://user-images.githubusercontent.com/37017946/188500980-f2c78c4f-9f69-47fc-9615-fbce886a0dc8.png)
+
