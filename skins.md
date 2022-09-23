@@ -65,6 +65,6 @@
 ![screenshot951](https://user-images.githubusercontent.com/37017946/186525066-47d23aa0-3a20-4950-b1f1-5d6cac757788.png)
 
 
-# [aristiatekkito](https://cntr.click/hHHfVL0)
+# [aristekk](https://cntr.click/hHHfVL0)
 ![screenshot205](https://user-images.githubusercontent.com/37017946/188500980-f2c78c4f-9f69-47fc-9615-fbce886a0dc8.png)
 
