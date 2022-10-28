@@ -87,3 +87,15 @@
 
 # [red_pixel](https://mega.nz/file/jmZH0DjJ#3u7HtWnpYq79PY9SDdz2g2wR0iZ1Qm3u-wgCGMTcGQw)
 ![unknown](https://user-images.githubusercontent.com/37017946/198751381-8fed7394-49d2-4d60-9ed4-2e8d9d9551aa.png)
+
+
+# [tekkipanowski](https://mega.nz/file/Xrw3iYaC#7GtR7_0k2fv7fmbNn14SgVoMWzkkxing5vZBE5TSqNg)
+![screenshot1140](https://user-images.githubusercontent.com/37017946/198751452-49996d29-a6d7-4b89-8f8d-3151c99ed27f.png)
+
+
+# [tekkitonowe](https://mega.nz/file/P7BxxSZZ#uWzb1FgKQLPwrEhRZFCw2oERc4SwsA6YWBMjZqntDw0)
+![screenshot1142](https://user-images.githubusercontent.com/37017946/198751500-1b8b7db4-f1dd-4299-9f3f-8005cb67ca83.png)
+
+
+# [monkorektygon](https://mega.nz/file/Wvp3mBYI#GdqShcJDAkHkV3aEAGGuY-gQ-EQQYXsZpvK5nqoPUYg)
+![screenshot1143](https://user-images.githubusercontent.com/37017946/198751530-c3026cef-2a6f-4f88-8102-22254a600387.png)
