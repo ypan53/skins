@@ -83,3 +83,7 @@
 
 # [essaazerino](https://mega.nz/file/q3AhSaAJ#QFlgWe3INbZuLoTlKEl_bywqPzjqeQIBFlKIB8-jTSU)
 ![screenshot1046](https://user-images.githubusercontent.com/37017946/192110316-d2b91c69-e9c7-4a1a-ba85-76afc9fe0a80.png)
+
+
+# [red_pixel](https://mega.nz/file/jmZH0DjJ#3u7HtWnpYq79PY9SDdz2g2wR0iZ1Qm3u-wgCGMTcGQw)
+![unknown](https://user-images.githubusercontent.com/37017946/198751381-8fed7394-49d2-4d60-9ed4-2e8d9d9551aa.png)
