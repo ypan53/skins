@@ -99,3 +99,7 @@
 
 # [monkorektygon](https://mega.nz/file/Wvp3mBYI#GdqShcJDAkHkV3aEAGGuY-gQ-EQQYXsZpvK5nqoPUYg)
 ![screenshot1143](https://user-images.githubusercontent.com/37017946/198751530-c3026cef-2a6f-4f88-8102-22254a600387.png)
+
+
+# [lajpan](https://cdn.discordapp.com/attachments/700321458802393148/1060687434922332210/lajpan.osk)
+![screenshot240](https://user-images.githubusercontent.com/37017946/210901481-70d62e7c-e6bc-4f6c-9e0c-2b3dfdc43d17.png)
