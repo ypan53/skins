@@ -103,3 +103,7 @@
 
 # [lajpan](https://cdn.discordapp.com/attachments/700321458802393148/1060687434922332210/lajpan.osk)
 ![screenshot240](https://user-images.githubusercontent.com/37017946/210901481-70d62e7c-e6bc-4f6c-9e0c-2b3dfdc43d17.png)
+
+
+# [whypan-g](https://cdn.discordapp.com/attachments/970048087924027463/1060707783210696704/whypan-g.osk)
+![screenshot241](https://user-images.githubusercontent.com/37017946/210901768-297f24cc-ecce-4061-9a3a-e14382ee39d3.png)
