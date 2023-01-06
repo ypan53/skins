@@ -111,3 +111,21 @@
 
 # [zibi x malis](https://cdn.discordapp.com/attachments/970048087924027463/1060708723158417478/zibi_x_malis.osk)
 ![screenshot246](https://user-images.githubusercontent.com/37017946/210902288-93274bcc-f8bb-40b7-bcfa-49fe3f4e1bba.png)
+
+
+# [tekkitowww](https://cdn.discordapp.com/attachments/970048087924027463/1060707729750097930/tekkitowww.osk)
+![screenshot248](https://user-images.githubusercontent.com/37017946/210902685-121974a6-8b73-40a7-b2d0-f613521d8947.png)
+
+
+# [tekkitomathi](https://cdn.discordapp.com/attachments/970048087924027463/1060707783105855578/tekkitomathi.osk)
+![screenshot249](https://user-images.githubusercontent.com/37017946/210902843-aca9103e-447c-45fa-8e70-cf0c49fe331d.png)
+
+
+# [tekkitoglass](https://cdn.discordapp.com/attachments/970048087924027463/1060707847773630514/tekkitoglass.osk)
+![screenshot255](https://user-images.githubusercontent.com/37017946/210903097-b2b0e9de-beef-4672-be8a-885209775eb0.png)
+
+
+# [mathi-whypan](https://cdn.discordapp.com/attachments/970048087924027463/1060710484703191060/mathi-whypan.osk)
+![screenshot259](https://user-images.githubusercontent.com/37017946/210903291-26e80f46-85b5-4e0e-98d2-47e2fa0d55cc.png)
+
+
