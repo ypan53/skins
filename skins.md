@@ -109,7 +109,7 @@
 ![screenshot241](https://user-images.githubusercontent.com/37017946/210901768-297f24cc-ecce-4061-9a3a-e14382ee39d3.png)
 
 
-# [zibi x malis](https://cdn.discordapp.com/attachments/970048087924027463/1060708723158417478/zibi_x_malis.osk)
+# [zibi x malis](https://cdn.discordapp.com/attachments/1006923355867328542/1060894847365546094/zibi_x_malis.osk)
 ![screenshot246](https://user-images.githubusercontent.com/37017946/210902288-93274bcc-f8bb-40b7-bcfa-49fe3f4e1bba.png)
 
 
