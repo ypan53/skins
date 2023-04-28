@@ -131,3 +131,11 @@
 
 # [enriedit](https://cdn.discordapp.com/attachments/970048087924027463/1093931666935910400/enriedit.osk)
 ![screenshot298](https://user-images.githubusercontent.com/37017946/230641771-773897af-bd21-4818-8ea6-44040e38eb49.png)
+
+
+# [axarious](https://cdn.discordapp.com/attachments/970048087924027463/1098753016674406511/axarious.osk)
+![screenshot012](https://user-images.githubusercontent.com/37017946/235265298-ad8dfbab-5dfe-41ec-95cf-c5b89d829b2a.jpg)
+
+
+# [monkomaliszedit](https://cdn.discordapp.com/attachments/970048087924027463/1098752885652717681/monkomaliszedit.osk)
+![screenshot013](https://user-images.githubusercontent.com/37017946/235265385-77486dfc-e702-4d0a-ba5c-3e1b09889553.jpg)
