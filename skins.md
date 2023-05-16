@@ -139,3 +139,7 @@
 
 # [monkomaliszedit](https://cdn.discordapp.com/attachments/970048087924027463/1101975203199856711/monkomaliszedit.osk)
 ![screenshot013](https://user-images.githubusercontent.com/37017946/235265385-77486dfc-e702-4d0a-ba5c-3e1b09889553.jpg)
+
+
+# [whypan-next](https://cdn.discordapp.com/attachments/1006923355867328542/1108150990038913074/whypan-next.osk)
+![screenshot334](https://github.com/ypan53/skins/assets/37017946/d9111c45-c34d-457a-b36a-4d6b94b1b4ef)
