@@ -144,5 +144,14 @@
 # [whypan-next](https://cdn.discordapp.com/attachments/1006923355867328542/1108150990038913074/whypan-next.osk)
 ![screenshot334](https://github.com/ypan53/skins/assets/37017946/d9111c45-c34d-457a-b36a-4d6b94b1b4ef)
 
+
 # [THEKUSHVANMAN YPAN](https://cdn.discordapp.com/attachments/891081570058895390/1127004908911079615/THEKUSHVANMAN_YPAN.osk)
 ![screenshot345](https://github.com/ypan53/skins/assets/37017946/1e409e5a-02d5-4f97-bf78-2e4182b92860)
+
+
+# [zibi purpel](https://cdn.discordapp.com/attachments/1068920174327115806/1127010617371402310/zibi_purpel.osk)
+![screenshot360](https://github.com/ypan53/skins/assets/37017946/19b8c8af-c475-47ac-afde-deab983b9920)
+
+
+# [zibi zielon](https://cdn.discordapp.com/attachments/1068920174327115806/1127010616733880430/zibi_zielon.osk)
+![screenshot353](https://github.com/ypan53/skins/assets/37017946/64891434-ccff-4d4f-bd1e-68c121472107)
