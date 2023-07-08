@@ -1,6 +1,6 @@
 # [ypan](https://osu.ppy.sh/users/7787629) and [maliszewski](https://osu.ppy.sh/users/12408961) skins
 
-
+  
 # [azerino nowe](https://mega.nz/file/y3onAbwJ#i9lrxjCbbLoDW66zsO8W-EhSRcSs76R0b9YgNzMb27w)
 ![image](https://user-images.githubusercontent.com/37017946/180619676-36c31750-dd63-41eb-8ed9-9ad2545ebfb4.png)
 
@@ -109,10 +109,6 @@
 ![screenshot241](https://user-images.githubusercontent.com/37017946/210901768-297f24cc-ecce-4061-9a3a-e14382ee39d3.png)
 
 
-# [zibi x malis](https://cdn.discordapp.com/attachments/1006923355867328542/1060894847365546094/zibi_x_malis.osk)
-![screenshot246](https://user-images.githubusercontent.com/37017946/210902288-93274bcc-f8bb-40b7-bcfa-49fe3f4e1bba.png)
-
-
 # [tekkitowww](https://cdn.discordapp.com/attachments/970048087924027463/1060707729750097930/tekkitowww.osk)
 ![screenshot248](https://user-images.githubusercontent.com/37017946/210902685-121974a6-8b73-40a7-b2d0-f613521d8947.png)
 
@@ -143,8 +139,9 @@
 
 # [whypan-next](https://cdn.discordapp.com/attachments/1006923355867328542/1108150990038913074/whypan-next.osk)
 ![screenshot334](https://github.com/ypan53/skins/assets/37017946/d9111c45-c34d-457a-b36a-4d6b94b1b4ef)
+</details>
 
-
+  
 # [THEKUSHVANMAN YPAN](https://cdn.discordapp.com/attachments/891081570058895390/1127004908911079615/THEKUSHVANMAN_YPAN.osk)
 ![screenshot345](https://github.com/ypan53/skins/assets/37017946/1e409e5a-02d5-4f97-bf78-2e4182b92860)
 
