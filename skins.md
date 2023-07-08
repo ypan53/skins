@@ -149,13 +149,13 @@
 ![screenshot345](https://github.com/ypan53/skins/assets/37017946/1e409e5a-02d5-4f97-bf78-2e4182b92860)
 
 
-# [zibi purpel (instafade)](https://cdn.discordapp.com/attachments/1068920174327115806/1127010617371402310/zibi_purpel.osk)
+# [zibi purpel](https://cdn.discordapp.com/attachments/1068920174327115806/1127010617371402310/zibi_purpel.osk)
 ![screenshot360](https://github.com/ypan53/skins/assets/37017946/19b8c8af-c475-47ac-afde-deab983b9920)
 
 
-# [zibi zielon (instafade)](https://cdn.discordapp.com/attachments/1068920174327115806/1127010616733880430/zibi_zielon.osk)
+# [zibi zielon](https://cdn.discordapp.com/attachments/1068920174327115806/1127010616733880430/zibi_zielon.osk)
 ![screenshot353](https://github.com/ypan53/skins/assets/37017946/64891434-ccff-4d4f-bd1e-68c121472107)
 
 
-# [kusju (instafade)](https://cdn.discordapp.com/attachments/891081570058895390/1127013490725490688/kusju.osk)
+# [kusju](https://cdn.discordapp.com/attachments/891081570058895390/1127013490725490688/kusju.osk)
 ![screenshot363](https://github.com/ypan53/skins/assets/37017946/0278c793-2c83-4e26-8271-bb9c648ef3a7)
