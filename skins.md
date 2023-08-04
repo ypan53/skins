@@ -156,3 +156,15 @@
 
 # [kusju](https://cdn.discordapp.com/attachments/891081570058895390/1127013490725490688/kusju.osk)
 ![screenshot363](https://github.com/ypan53/skins/assets/37017946/0278c793-2c83-4e26-8271-bb9c648ef3a7)
+
+
+# [regalon](https://cdn.discordapp.com/attachments/970048087924027463/1137126678976532601/regalon.osk)
+![image](https://github.com/ypan53/skins/assets/37017946/28d7fb6d-e09e-4dea-a975-dd1db8200507)
+
+
+# [weon](https://cdn.discordapp.com/attachments/970048087924027463/1137127033323921508/weon.osk)
+![image](https://github.com/ypan53/skins/assets/37017946/40e26e83-c8d6-4aad-8838-5823552ffb41)
+
+
+# [booptekkito](https://cdn.discordapp.com/attachments/970048087924027463/1137127545880461422/booptekkito.osk)
+![image](https://github.com/ypan53/skins/assets/37017946/8b5bac1d-0f28-47ff-b5d2-1d337ba606d3)
