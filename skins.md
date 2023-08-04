@@ -168,3 +168,11 @@
 
 # [booptekkito](https://cdn.discordapp.com/attachments/970048087924027463/1137127545880461422/booptekkito.osk)
 ![image](https://github.com/ypan53/skins/assets/37017946/8b5bac1d-0f28-47ff-b5d2-1d337ba606d3)
+
+
+# [malisz og](https://cdn.discordapp.com/attachments/970048087924027463/1137128973550239794/malisz_og.osk)
+![image](https://github.com/ypan53/skins/assets/37017946/571e7505-3cea-4929-a8eb-a177cdb29101)
+
+
+# [lugiamathias](https://cdn.discordapp.com/attachments/970048087924027463/1137129176097362030/lugiamathias.osk)
+![image](https://github.com/ypan53/skins/assets/37017946/eeaebc98-191e-4f5e-a766-3ed11e65dd19)
