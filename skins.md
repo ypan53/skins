@@ -176,3 +176,7 @@
 
 # [lugiamathias](https://cdn.discordapp.com/attachments/970048087924027463/1137129176097362030/lugiamathias.osk)
 ![image](https://github.com/ypan53/skins/assets/37017946/eeaebc98-191e-4f5e-a766-3ed11e65dd19)
+
+
+# [zibi grej](https://cdn.discordapp.com/attachments/1006923355867328542/1142161390006710312/zibi_grej.osk)
+![screenshot384](https://github.com/ypan53/skins/assets/37017946/0f3334e2-34a3-492f-a3f0-770bd6973d07)
